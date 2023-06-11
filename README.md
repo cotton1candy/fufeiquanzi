@@ -24,7 +24,7 @@
 
 更有工作内推+hw机会
 
-内含资源总价值已达6w￥
+内含资源总价值已达10w￥
 
 ![预览](https://www.mianhuatang.tk/usr/uploads/1684408210001.jpg)
 
