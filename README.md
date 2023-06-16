@@ -28,6 +28,8 @@
 
 图中仅仅是冰山一角
 
+目前仅支持内部群师傅担保入内部，不再接受外部加入
+
 ![预览](https://www.mianhuatang.tk/usr/uploads/1684408210001.jpg)
 
 https://21tian.net（违法网站源码）
